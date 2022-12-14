@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kbav26
+- 👀 I’m interested in aviation!
+- 🌱 I’m currently learning to become an AME
+- 💞️ I’m looking to collaborate on LOTV and Infinite Flight
+- 📫 How to reach me IFC: KbAv, Instagram: @ifs.jets
